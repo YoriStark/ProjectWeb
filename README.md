@@ -2,7 +2,7 @@ Noms des étudiants :
 
 • BANCE ISSOUF 
 
-• GEOUU JUDICAEL 
+• GOUEU JUDICAEL
 
 • YoriStark (Troisieme personne fictif)
 
